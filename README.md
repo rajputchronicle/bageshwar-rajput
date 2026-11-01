@@ -1,2 +1,3 @@
 # bageshwar-rajput
-Personal blog of Bageshwar Rajput.
+History of Bageshwar Rajput.
+Bageshwar Bhati Rajputs: Clan Lineage, Ancestry, History, and Heritage.
